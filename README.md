@@ -1,0 +1,40 @@
+# BEFORE U READ
+if u respect the fact that i dont want ichance enjoyers int w me, then thank u!! 
+ive been harassed/pressured into liking the ship, my boundaries have been pushed by random people and even my friends and im so sick and tired of it so i made this.
+
+# CANON LORE
+so based off the canon lore, im not gonna beat around the bush, itrapped kills chance.
+we dont know if he feels remorse, but all we do know is that itrapped USED him to get the key to the banlands and a key to open a vault with lots of money
+chance had no genuine friends, so he hung onto itrapped.
+chance was lonely and desperate, and itrapped took advantage of that.
+emphasis on advantange.
+its canon itrapped never saw anything in chance other than a quick way to make money.
+itrapped grew impatient and killed chance.
+
+# PERSONAL THOUGHTS
+okay, now thats canon.
+i dont see any romantic intention between the two.
+itrapped took advantage, used, manipulated, and betrayed.
+is that how you love someone??
+i dont think so.
+it was a toxic friendship that itrapped wanted control over only for his own benefit.
+i dont get how people find that "loving" or whatever you want to call it.
+its a comship.
+a comship is when two individuals are in a toxic relationship with one another, a complicated ship
+itrapped wanted him dead, not alive, not near him, just dead, gone, and away.
+chance didnt feel that way, he thought he was a friend.
+he was vulnerable which itrapped took advantage of.
+if you ship this, you're a comshipper.
+its manipulator x victim.
+just seeing the ship makes me sick to my stomach to the point just mentioned of it became a trigger.
+no, im not joking. call me sensitive, but just seeing fanart of it made me have a panic attack.
+im an itrapped fan, so i search up itrapped everywhere
+i am bound to see ichance obviously, so dont just tell me 'just block them' because ive already BEEN doing that
+this isnt meant to hate on ichance lovers, im just stating the facts and i hate how normalized this ship is.
+toxic ships are everywhere, sure, but when i see my COMFORT CHARACTER encouraging another character into self harm.
+thats when things draw a line.
+yes, theres actual fanart of it.
+
+# THANKS FOR READING
+i hope this spreads awareness abt what ive been feeling in response to all of this and i eventually had to make this considering the amount of people that have harassed me.
+if u like ichance, thats fine. just dont interact with me unless ure planning on leaving ichance outta the conversation/interactions
